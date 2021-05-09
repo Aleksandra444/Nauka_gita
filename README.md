@@ -10,16 +10,16 @@
 
 *trudne*
 
-*whaaaaaaaaaaaaaaaaaaaaaat**
+*whaaaaaaaaaaaaaaaaaaaaaat*
 
 
 **oh no oh no oh no  no   no   no**
 
-_yyyy**yy** yyyy_
+_yyyy**yy** yyyy_*HHHHHHHHH*
 
 **GIT**
 
-**OLA**
+**LUBIE PSY**
 
 _OLA_
 
